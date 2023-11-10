@@ -4,7 +4,7 @@
 
 ---------------------------
 ### 📫 How to reach me:
-- Phone Numbers: +266 5858 9019, +266 6327 4535
+- Phone Numbers: +266 6327 4535, +266 5858 9019
 - Email Address: ✉️ folokolereko@gmail.com
 
 ---------------------------
