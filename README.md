@@ -16,7 +16,7 @@
            
 ---------------------------
 ### Current Location
-*   🌍  Lesotho Based Developer
+*   🌍  Lesotho Based Developer (Open to Relocation & Remote Work)
 
 ---------------------------
 
